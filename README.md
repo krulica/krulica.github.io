@@ -1,2 +1,0 @@
-krulica.github.io
-=================
